@@ -1,4 +1,4 @@
-# LGYankees – Brothership feat. GIO，DATE
+# LGYankees – Brothership feat. GIO，DATE（feat. GIO，DATE）
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
